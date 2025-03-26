@@ -1,1 +1,3 @@
 ## ATIVIDADE PONDERADA SEMANA 07
+
+João De Caprio Agmont T15
